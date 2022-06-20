@@ -1,6 +1,6 @@
 # Table of contents
 
-* [README](README.md)
+* [Filosofia](README.md)
 * [1915 RolandBarthes](1915-rolandbarthes.md)
 * [1898 Herbert Marcuse](1898-herbert-marcuse.md)
 * [1895 Max Horkheimer](1895-max-horkheimer.md)
