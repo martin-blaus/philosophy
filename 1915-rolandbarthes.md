@@ -1,4 +1,4 @@
-# 1915 - RolandBarthes
+# 1915 RolandBarthes
 
 ### Roland Barthes <a href="#h.8laykm45k7dc" id="h.8laykm45k7dc"></a>
 
