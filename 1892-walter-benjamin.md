@@ -33,7 +33,6 @@ _“**The aura decays because masses desire to bring things “closer”,** ever
 _“**The technique of reproduction detaches the reproduced object from the domain of tradition“**_
 
 Benjamin is not saying that the Aura is good or bad, rather it’s different. For example before art was not accessible to most people but it did had a greater effect on us.
-
 The reproduction now goes to the beholder, reactivating the object reproduced. We don't have to go to Paris to see the Eiffel Tower or Monalisa.. “_The simultaneous contemplation of paintings by a large public is an early symptom of the crisis of painting not related with photography but in an independent manner by the appeal of art works to the masses._”
 
 The loss of aura seems to have both positive and negative effects for Benjamin. The aura of art is fundamentally connected to tradition while reproduced art is completely detached from it. So in the modern age, **art is ‘liberated’ from its dependence on ritual.** As a result, both the autonomy of art but also the connection with tradition is lost, so **art can be experienced in a new way.** In the way a movie can be recreated like the Justice Leagues or memes bringing new meaning to old paintings.
